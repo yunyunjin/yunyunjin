@@ -1,4 +1,4 @@
-## 🔭 I’m currently working on..>_____<
+## 🔭 I’m currently working on..
 ### 🌱🌱🌱🌱🌱 
 
 <!--
